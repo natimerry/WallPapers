@@ -1,3 +1,3 @@
 # WallPapers
 
-Cool personal wallpapers. 
+Cool wallpapers. 
